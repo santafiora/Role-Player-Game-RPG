@@ -14,7 +14,7 @@ Style Guides, Design Pattern wie Solid Principles und viel viel mehr ganz einfac
 
 Cheeeers and Enjoy the Radio Show
 
-Scott Lilly AKA Scott Lilly & Rudolfo Malicki AKA Holy Cow where a the snoooze buzzer alias DJ Mondo i will never see you again 
+Scott Lilly AKA Scott Lilly & Rudolfo Malicki AKA Holy Cow where are the snoooze buzzer alias DJ Mondo i will never see you again 
 
 
 
